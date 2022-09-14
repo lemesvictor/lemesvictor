@@ -1,3 +1,3 @@
-Hi, I’m @lemesvictor
-eyes estou intere em aprender tecnica
-seedling eu estou aprendendo a linguagem de JavaScript e Scratch +1 meu email de contato é joao.lemes.barbosa@escola.pr.gov.br
+Hi, I'm @lemesvictor
+eyes I'm interested in learning technique
+seedling I'm learning the language of JavaScript and Scratch +1 my contact email is joao.lemes.barbosa@escola.pr.gov.br
